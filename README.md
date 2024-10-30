@@ -1,4 +1,4 @@
-## 🎉 Birthday Salma Sabina
+## 🎉 awalinrizky.github,io
 
 [Demo](https://awalinrizky.github.io/hbd/)
 
